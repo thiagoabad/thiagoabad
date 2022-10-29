@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on automation projects
 - 📫 How to reach me: abadthiago@gmail.com or [Instagram](https://instagram.com/abadthiago)
 
-- 🤔 Also, I'm ~very creative~ as you can see. 😜
+- 🤔 Also, I'm ~very~ not so much creative as you can see. 😜
 
 - 🐕 This dog in the picture is Dix, follow him and my other dogs on [Instagram Abadogs](https://instagram.com/abadogs)
 
