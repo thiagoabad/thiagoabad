@@ -6,7 +6,7 @@
 
 - 🤔 Also, I'm ~very~ not so much creative as you can see. 😜
 
-- 🐕 This dog in the picture is Dix, follow him and my other dogs on [Instagram Abadogs](https://instagram.com/abadogs)
+- 🐕 This dog in the picture is Dix, follow him on [Instagram Abadogs](https://instagram.com/abadogs)
 
 <!---
 thiagoabad/thiagoabad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
